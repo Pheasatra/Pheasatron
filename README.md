@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Pheasatron
+- 👀 I’m interested in ...beans
+- 🌱 I’m currently learning ...virtual bean construction
+- 💞️ I’m looking to collaborate on ...bean quantum physics
+- 📫 How to reach me ...bean beacon
